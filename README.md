@@ -9,5 +9,6 @@ Gosto de ir ao cinema.:popcorn::bubble_tea:
 
 conheca meu perfil www.linkedin.com/in/dayana-lima-4b0795169
 
-alteração
+Sonhar nunca desistir.
+
 
