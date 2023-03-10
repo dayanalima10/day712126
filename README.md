@@ -8,5 +8,6 @@ Amo viajar e conhecer novas culturas.:airplane::boat:
 Gosto de ir ao cinema.:popcorn::bubble_tea:
 
 conheca meu perfil www.linkedin.com/in/dayana-lima-4b0795169
-feliz
+
+alteração
 
