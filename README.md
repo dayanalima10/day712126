@@ -11,4 +11,6 @@ conheca meu perfil www.linkedin.com/in/dayana-lima-4b0795169
 
 Sonhar nunca desistir.
 
+Mesmo que pareça difícil, não pare! 
+
 
